@@ -1,5 +1,5 @@
 ## 𓆝 𓆟 𓆞 𓆝 𓆟
--cybersecurity student -
+
 still learning how to use this ..
 
 
