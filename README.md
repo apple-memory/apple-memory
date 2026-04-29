@@ -1,4 +1,4 @@
-## MEOW
+## 𓆝 𓆟 𓆞 𓆝 𓆟
 
 <!--
 **apple-memory/apple-memory** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
