@@ -1,4 +1,5 @@
-## 𓆝 𓆟 𓆞 𓆝 𓆟
+## <img width="750" height="250" alt="image" src="https://github.com/user-attachments/assets/a84dae2f-40a6-48e3-a06b-70278063e2fb" />
+
 
 still learning how to use this ..
 
